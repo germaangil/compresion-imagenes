@@ -78,7 +78,7 @@ Para ejecutar este proyecto, asegúrate de contar con lo siguiente:
 
 ## Contacto
 
-Si tienes preguntas o sugerencias sobre el proyecto, puedes contactar a Germán en germangilplanes@gmail.com.
+Si tienes preguntas o sugerencias sobre el proyecto, puedes contactar a Germán en germangilplanes@gmail.com o por teléfono o WhatsApp 693060816.
 
 ---
 
